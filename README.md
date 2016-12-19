@@ -1,1 +1,1 @@
-Following the most boring tutorial ever, jk!
+Following the most boring tutorial ever, jk
